@@ -14,3 +14,7 @@ Then they pull up to her husband's parent's house.
 ![alt_txt](https://github.com/DavidPynes/memes/blob/main/01.png)
 
 I think you are nothing more than a dandy, and a pathetic loser...I just paid cash for a new car. I won.
+
+![alt_txt](https://github.com/DavidPynes/memes/blob/main/02.png)
+
+https://constitution.congress.gov/constitution/amendment-5/
