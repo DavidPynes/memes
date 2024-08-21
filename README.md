@@ -7,3 +7,6 @@ https://www.youtube.com/watch?v=_2eTNxPxXRc
 https://www.youtube.com/watch?v=04SLXwjJvqg
 
 ![alt_text](https://github.com/DavidPynes/memes/blob/main/ditch.png)
+
+![alt_text](https://github.com/DavidPynes/memes/blob/main/yes.png)
+
