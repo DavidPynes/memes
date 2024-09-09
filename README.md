@@ -7,3 +7,9 @@ let me absolve you...of a past that controls you.
 https://m.youtube.com/watch?v=wz3avntsz2o
 
 ![](https://github.com/DavidPynes/memes/blob/main/BURN.gif)
+
+there is no time....
+
+![](https://github.com/DavidPynes/memes/blob/main/IMG_3515.jpeg)
+
+https://www.youtube.com/watch?v=ArEyHtqUEwg
