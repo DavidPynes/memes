@@ -1,7 +1,5 @@
 ![alt text](https://github.com/DavidPynes/memes/blob/main/meme_crime.png)
 
-![](https://github.com/DavidPynes/memes/blob/main/IMG_3570.jpeg)
-
 let me absolve you...of a past that controls you.
 
 ![](https://www.youtube.com/watch?v=R4shwJBnYEM)
