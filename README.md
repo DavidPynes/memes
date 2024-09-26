@@ -10,6 +10,4 @@ https://m.youtube.com/watch?v=wz3avntsz2o
 
 there is no time....
 
-![](https://github.com/DavidPynes/memes/blob/main/IMG_3515.jpeg)
-
 https://www.youtube.com/watch?v=ArEyHtqUEwg
